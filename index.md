@@ -1,5 +1,3 @@
-##ひとりの夜を抜け
-
 ひとりの夜を抜け	running out the night alone
 どこまで行く	no plan where to go
 くたびれたスタンスミス	eventually I'll find the end 
