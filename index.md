@@ -87,4 +87,3 @@
 色あせたユニットバス	a washed out bathroom
 いつか踊りだす	someday I'll break dancing
 未来を信じて	believing in the future
-	
